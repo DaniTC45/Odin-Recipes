@@ -1,0 +1,1 @@
+Hi! This tiny project is practice for my future as a full stack developer and entrepenur! We pray this practice to be in the hands of Jesus Christ!
